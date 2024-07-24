@@ -1,2 +1,2 @@
-# Steins-Gate-
-Steins;Gate dub en espanyol
+# Steins;Gate
+
